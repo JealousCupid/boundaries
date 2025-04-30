@@ -4,7 +4,8 @@ To not have any misunderstandings, i want to clear so things up.
 ![](https://64.media.tumblr.com/0e6ed881462e4a2bec31a37dd25ee812/70456ea8a31cb6f3-54/s2048x3072/6d7c8c0f314d62e41578d46df9fd6f90fce9fd1b.pnj)
 ## 🏝 - Conditions
 ***
-I am currently undiagnosed because of my inability to visit a professional therapist or psychiatrist. Me and other close people to me have discussed this and i have high chances of having the following conditions. Which I do not take medication for since i am undiagnosed so please be patient with me! If you are unsure of any of the meanings of the conditions and feel free to make your own resarch!
+I am currently undiagnosed because of my inability to visit a professional therapist or psychiatrist. Me and other close people to me have discussed this and i have high chances of having the following conditions. Which I do not take medication for since i am undiagnosed so please be patient with me! If you are unsure of any of the meanings of the conditions and feel free to make your own research!
+None of these are official, i could even have completely different struggles. This is just what we suspect!!!
 
 - Severe Anxiety 
 > (only thing that i actually used to take medication for)                                                    
