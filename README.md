@@ -32,8 +32,10 @@ Im mentally unstable so i would appreciate it ^^
 - Murder drones fandom
 
 ![](https://64.media.tumblr.com/a6ef4cc189385e2790516554708f7bcb/70456ea8a31cb6f3-24/s2048x3072/81c2eedd8072699c8beb2a5d9dd08abf9496832d.pnj)
-# 🌊 - Other
-i forgot to write here         
+# 🌊 - Boundaries
+[click here](https://alphalonewolf.carrd.co/)          
+saturn's carrd has been deleted i think so even if you try to click it, you wont see antyhing          
+[insert crying emoji]
 
 ![](https://64.media.tumblr.com/9c6c14517b11b356f3c6961e5ae3ab05/70456ea8a31cb6f3-d1/s2048x3072/160643167ba60b9cd87d16e777fea3fa9296a860.pnj)
 
